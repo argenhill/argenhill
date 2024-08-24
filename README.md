@@ -6,6 +6,8 @@
 
 ![image](https://pixels.crd.co/assets/images/gallery27/1cf42314.gif?v=99d3974e) ![image](https://64.media.tumblr.com/44cc6a6e0abea2c1760d153b960bbbf0/1cd8803307814ce8-fb/s400x600/8ce6fc2c86f5320d6f9e648224cc389bfeb45dd4.pnj) ![image](https://pixels.crd.co/assets/images/gallery27/1cf42314.gif?v=99d3974e)
 
+⟡˖ ࣪ [Roblox](https://www.roblox.com/users/1529301192/profile) . [Tiktok](https://www.tiktok.com/@jhyyren?lang=en)
+
 ![image](https://i.postimg.cc/903tJ6Dj/image-removebg-preview-1.png) feel free to cuddle ! INT in whisps bc i respond there more <3 
   ![image](https://i.postimg.cc/xTX0SqT5/blinkies-Cafe-v-V.gif) ![image](https://i.postimg.cc/k45Ht1Gm/blinkies-Cafe-E1.gif) ![image](https://i.postimg.cc/GmGtZzcd/blinkies-Cafe-0-F.gif) ![image](https://i.postimg.cc/FzHG673X/blinkies-Cafe-9z.gif)
 
