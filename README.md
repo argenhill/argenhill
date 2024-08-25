@@ -1,5 +1,8 @@
 # ᵀʰᵉ ᶠˡᵉᵉᵗᶦⁿᵍ ˡᵒᵛᵉ ˡᶦᵏᵉ ᵃ ᵐᶦʳᵃᵍᵉ, ᶦˢ ⁿᵒʷ ᵐᵘᶜʰ ᶠᵃʳᵗʰᵉʳ, ˡᵒⁿᵍᵉʳ ᵗʰᵃⁿ ᵉᵗᵉʳⁿᶦᵗʸ
-![image](https://i.postimg.cc/2yZdnKKb/image.png) ART BY MY PLATONIC SOULMATE I LOVE YOU [NOVO](https://github.com/pr3t7yP02er) OH MY GOD
+
+ART BY MY PLATONIC SOULMATE I LOVE YOU [NOVO](https://github.com/pr3t7yP02er) OH MY GOD
+
+![image](https://i.postimg.cc/2yZdnKKb/image.png) 
   
 ♡ Jhyren !! ⟡˖ ࣪ He/him
 ![image](https://i.postimg.cc/W4wkX8ZX/image.png)
