@@ -6,4 +6,4 @@
 
 ![image](https://i.postimg.cc/nh4XqJcf/IMAG32.png)
 
-⟣ ⸝⸝ ⟢ [credits](https://rentry.co/DEADNG0NE) 𓍯๋࣭ [strawpage](https://littledoves.straw.page/) ♡𓂃 [cardd](https://tulparcaptain.carrd.co/) 
+
